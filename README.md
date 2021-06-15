@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @woahdy
 - 👀 I’m married to music & money
 - 🌱 I’m currently in college 
-- 💞️ I’m looking to find a team
+- 🦾 I’m looking to find a team
 - 📫 How to reach me=(@guillorise)
 
 <!---
