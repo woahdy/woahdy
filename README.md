@@ -1,6 +1,6 @@
 - Woahdy
 - music & money
-- wwww.woahbit.com
+- www.woahbit.com
 - www.woahdy.com
 - www.guillotrise.com
 
