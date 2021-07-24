@@ -3,7 +3,7 @@
 - www.woahbit.com
 - www.woahdy.com
 - www.guillotrise.com
-⚪️    🔴.   🔵.    🟣
+⚪️  
 
 Being a 23-year-old musician From New Orleans I have obtained an obsession with art
 & design, Making something out of nothing & knowing it will Last forever is why I do
