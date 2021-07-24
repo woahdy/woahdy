@@ -1,8 +1,8 @@
-- @woahdy
+- Woahdy
 - music & money
-- WWW.woahbit.com
-- 🦾 team - WWW.woahdy.com
-- 📫 reach me=(@guilltorise)
+- wwww.woahbit.com
+- www.woahdy.com
+- www.guillotrise.com
 
 <!---
 woahdy/woahdy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
