@@ -4,7 +4,7 @@
 - www.woahbit.com
 - www.woahdy.com
 - www.guillotrise.com
-
+![40D863CD-0068-47AD-80AE-F8B13970F954](https://user-images.githubusercontent.com/80494215/161287365-76d73839-724c-4037-b3c4-770115033aad.jpg)
 Being a 23-year-old musician From New Orleans I have obtained an obsession with art
 & design, Making something out of nothing & knowing it will Last forever is why I do
 What I do. I've fallen in love with the process of structuring a Song, 
